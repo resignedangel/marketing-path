@@ -43,3 +43,12 @@ It doesn’t make any sense to make a key and then run around looking for a lock
 - Your tactics can make a difference, but your strategy—your commitment to a way of being and a story to be told and a promise to be made—can change everything. 
 - If you want to make change, begin by making culture. Begin by organizing a tightly knit group. Begin by getting people in sync.
 - Culture beats strategy—so much that culture is strategy.
+
+## Things marketers know
+
+1. Committed, creative people can change the world (in fact, they’re the only ones who do). You can do it right now, and you can make more change than you can possibly imagine. 
+2. You cannot change everyone; therefore, asking, “Who’s it for?” can focus your actions and help you deal with the nonbelievers (in your head and in the outside world). 
+3. Change is best made with intent. “What’s it for?” is the posture of work that matters. 
+4. Human beings tell themselves stories. Those stories, as far as each of us is concerned, are completely and totally true, and it’s foolish to try to persuade them (or us) otherwise.
+5. We can group people into stereotyped groups that often (but not always) tell themselves similar stories, groups that make similar decisions based on their perceived status and other needs. 
+6. What you say isn’t nearly as important as what others say about you.
